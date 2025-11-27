@@ -1,3 +1,3 @@
 building stuff for web.
 
-contact me at **[dceliknodes@gmail.com](mailto:dceliknodes@gmail.com)**
+contact me at: **[dcelik81@hotmail.com](mailto:dcelik81@hotmail.com)**
