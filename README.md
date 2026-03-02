@@ -1,3 +1,8 @@
-building stuff for web.
+Building stuff for web, for people.
 
-**[dceliknodes@gmail.com](mailto:dceliknodes@gmail.com)**
+[website](https://dousch.dev)
+
+[contact me via e-mail](mailto:dogukancelik2@proton.me)
+
+
+
