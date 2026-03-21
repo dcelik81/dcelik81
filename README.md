@@ -4,8 +4,6 @@ Building stuff for web, for people.
 
 ## Contact
 
-[website](https://dousch.dev)
-
 [contact me via e-mail](mailto:dceliknodes@gmail.com)
 
 ## My Projects
